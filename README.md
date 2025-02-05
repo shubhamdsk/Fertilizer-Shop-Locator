@@ -29,5 +29,5 @@ Imagine having all the essential agricultural supplies at your fingertips, with 
 ## Ready to enhance your agricultural operations?  
 Embrace technology and ensure the smooth supply of critical farming products. Connect with me today and let’s make it happen.  
 
-### [Buy the Project Here](https://topmate.io/shubhamdsk/1426561) - First 10 users will get extra 10% discount.
+### [Buy the Project Here](https://topmate.io/shubhamdsk/1426561) - First 10 users will get extra 10% discount use coupon :- First10
 ![Image](https://github.com/user-attachments/assets/61f7e692-c7ea-4a96-b98c-28135c6e4b90)
